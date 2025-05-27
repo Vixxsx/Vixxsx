@@ -3,7 +3,7 @@
 #I study Computer science with AI<br/>
 #I like coding and crave for more(I am serious)<br/>
 #I like to design too<br/>
-Join my Instagram(Its not much but still) https://www.instagram.com/simply_vishnuoriginal?igsh=MWpreGRnNG45cW56NQ==<br/>
+Join my Instagram(Its not much but still) https://www.instagram.com/vishnu_dilish/ <br/>
 
 
 ## 🌐 Socials:
