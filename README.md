@@ -1,8 +1,8 @@
 #Hi I am Vixxsx (Vishnu Dilish)<br/>
 
 #I study Computer science with AI<br/>
-#I like coding and crave for more(I am serious)<br/>
-#I like to design too<br/>
+#I like designing websites into creative styles<br/>
+#I am pretty good at coding with python<br/>
 Join my Instagram(Its not much but still) https://www.instagram.com/vishnu_dilish/ <br/>
 
 
